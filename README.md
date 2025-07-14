@@ -11,7 +11,7 @@ Cut through the hype—this is the 2025 enterprise-ready guide for selecting, be
 
 ## 📥 Download the Full Guide (PDF)
 
-👉 [Top 10 AI Agent Platforms Transforming Business Intelligence and Automation in 2025- A Technical Analysis for Enterprise Decision-Makers]
+👉 👉 [Top 10 AI Agent Platforms Transforming Business Intelligence and Automation in 2025.pdf]
 
 ---
 
